@@ -43,4 +43,11 @@ Chaque jour un peu plus
 J'avais pas l'impression d'être plus coté qu'une caisse à l'argus
 Donc j'ai dû renoncer, trouver mes propres complicesMes partenaires de glisse, désolé si je m'immisce
 
+Mais laisse pas traîner ton fils
+Si tu ne veux pas qu'il glisse
+Qu'il te ramène du viceLaisse pas traîner ton fils
+Si tu veux pas qu'il glisse
+
+
+
 
